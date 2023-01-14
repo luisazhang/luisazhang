@@ -1,2 +1,0 @@
-# luisazhang
-My portfolio
